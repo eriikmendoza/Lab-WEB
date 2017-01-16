@@ -1,6 +1,6 @@
 # Lab-WEB
 
-* Erik Mendoza
-* Bryan Arroyo
-* Andrés Galindo
-* Héctor Arreola
+* Erik Mendoza :smirk:
+* Bryan Arroyo :wink:
+* Andrés Galindo :smiley_cat:
+* Héctor Arreola :expresionless:
